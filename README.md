@@ -13,7 +13,7 @@ You can explore my full curated collections and purchase high-quality fine art p
 - **Coastal Relics:** A study on maritime textures and functional beauty.
 - **Mediterranean Fragments:** Architectural traces and coastal relics.
 - **Botanical Minimalism:** Nature art prints for modern and organic spaces.
-- **Minimal Seascapes:**Visual studies on luminous thresholds and spatial boundaries between possibility and form.
+- **Minimal Seascapes:** Visual studies on luminous thresholds and spatial boundaries between possibility and form.
 
 ---
 *Keywords: Fine Art Photography, Coastal Minimalism, Maritime Art, Interior Design Prints, Luigi Andriulo, Mediterranean Photography.*
